@@ -1,4 +1,4 @@
-## Salutations! I go by Keyka.
+## Salutations! I go by Keyka
 
 😄 Pronouns: She/Her/Hers
 
