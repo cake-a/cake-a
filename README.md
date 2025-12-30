@@ -10,4 +10,4 @@
 
 📫 If you're interested in getting in contact with me, you can reach me via email at kschyo@gmail.com
 
-Hope something good happens to you today!
+❤ Hope something good happens to you today!
